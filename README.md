@@ -1,1 +1,1 @@
-My first readme
+I love to programme and alx is here to help! ☕ 🕺 🇬🇭
